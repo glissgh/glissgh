@@ -24,4 +24,4 @@
 - Tg - @nexeq
 
 <hr>
-### 🤡 and remember. we are all citizens of a second-rate era 
+### and remember. we are all citizens of a second-rate era 
