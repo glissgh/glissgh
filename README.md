@@ -22,6 +22,3 @@
 - Mail/XMPP - nexeq@riseup.net
 - Ig - @nexe.q
 - Tg - @nexeq
-
-<hr>
-### and remember. we are all citizens of a second-rate era 
